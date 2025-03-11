@@ -36,4 +36,4 @@
 
 [Дашборд](https://public.tableau.com/shared/4CXXBDRZ9?:display_count=n&:origin=viz_share_link)
 
-[Презентация]()
+[Презентация](https://disk.yandex.kz/d/T2tSrPVn3_jI6A)
