@@ -12,4 +12,4 @@
 
 [Дашборд](https://public.tableau.com/views/NPSTelecom/Dashboard1?:language=en-US&publish=yes&:display_count=n&:origin=viz_share_link)
 
-[Презентация](https://drive.google.com/drive/folders/1AxqFC_gAnl3sTfGxUjhbDNsrrPyt_O8g?usp=sharing)
+[Презентация](https://disk.yandex.kz/d/4eLzDs7m4r2IJw)
