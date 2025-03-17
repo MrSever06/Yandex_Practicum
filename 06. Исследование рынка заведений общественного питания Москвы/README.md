@@ -36,4 +36,4 @@
  
 3.	Режим работы. Немного кофеен работают круглосуточно, поэтому открытие кофейни с круглосуточным режимом работы может стать дополнительным преимуществом на рынке.
 
-**[Презентация](https://disk.yandex.kz/d/hftCAsD0LfLQaw)**
+**[Презентация](https://drive.google.com/file/d/1HOKIjX0RMwYRAjMS6b0uHJY0WI9LE6lB/view?usp=drive_link)**
